@@ -6,9 +6,9 @@
 
 👉 备用地址发布页 ：
 
-① https://github.com/dbdaohang/dz
+① https://github.com/dbdaohang/bcj
 
-② https://db-dh.gitbook.io/fabu/
+② https://db-dh.gitbook.io/bcj/
 
 📧 最新地址索取邮箱: BCJDaoHang@gmail.com
 

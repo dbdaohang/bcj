@@ -1,4 +1,4 @@
-⭐️百草集导航⭐️ 地址发布页 👉 最新地址：https://bcj10.buzz/gogogo
+⭐️百草集导航⭐️ 地址发布页 👉 最新地址：https://bcj11.buzz
 
 永久发布页地址：https://bcj.icu
 

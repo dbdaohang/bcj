@@ -1,6 +1,6 @@
-⭐️百草集导航⭐️ 地址发布页 👉 最新地址：https://bcj11.buzz
+⭐️百草集导航⭐️ 地址发布页 👉 最新地址：https://bcj1.cfd
 
-永久发布页地址：https://bcj.icu
+永久发布页地址：https://db-dh.gitbook.io/bcj/
 
 请牢记永久地址， Ctrl+D 收藏本页，方便找到回家的路!
 

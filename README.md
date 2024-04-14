@@ -1,4 +1,4 @@
-⭐️百草集导航⭐️ 地址发布页 👉 最新地址：https://bcj1.cfd
+⭐️百草集导航⭐️ 地址发布页 👉 最新地址：https://fabu.bcj30.buzz
 
 永久发布页地址：https://db-dh.gitbook.io/bcj/
 
